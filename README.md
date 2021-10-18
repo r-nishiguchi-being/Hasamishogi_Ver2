@@ -1,0 +1,1 @@
+# Hasamishogi_Ver2
